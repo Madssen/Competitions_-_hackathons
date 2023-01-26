@@ -1,1 +1,1 @@
-# Competitions_-_hackathons
+# Competitions_and_hackathons
